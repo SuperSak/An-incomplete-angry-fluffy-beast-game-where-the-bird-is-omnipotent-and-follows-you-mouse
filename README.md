@@ -1,2 +1,2 @@
-# p5.play-boilerplate
-Boiler plate for p5.play
+# ANGRY FLUFFY BEASTS THAT ARE OMNIPOTENT
+They are fluffy tho :)
